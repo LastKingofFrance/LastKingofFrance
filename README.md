@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LastKingofFrance
 - 👀 I’m interested in History, Football, Chess, and then Data here. Probably math first before data.
--  Think about it the only reason we have data and data science is because some people in modern-day Iraq wanted to record the produce they had farmed.
+-  Think about it the only reason we have data and data science is because some people, thousands of years ago, in modern-day Iraq wanted to record the produce they had farmed.
 -  How is that at all interesting?
 - 🌱 I’m currently learning to be a better person. But I should probably say something like Python or R or how to become a holistic actuary. 
 - 💞️ I’m looking to collaborate on something that will impact people. 
