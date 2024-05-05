@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on something that will impact people. 
 - 📫 How to reach me: probably via email at allannyariki@gmail.com
 - 😄 Pronouns: He/him 
-- ⚡ Fun fact: In 2012 Kendrick made one of the top 10 albums in rap history good kid, m.A.A.d city which he lost to Macklemore's Random Access Memories an inferior album.
+- ⚡ Fun fact: In 2012 Kendrick made one of the top 10 albums in rap history good kid, m.A.A.d city of which he lost the Grammys to Macklemore's Random Access Memories an inferior album.
 - Three years later he would make To Pimp a Butterfly arguably one of the top 5 best albums not only in rap but music history and then won a deserved Grammy one year later.
 - This is a long fun fact but the moral of the story is if  things don't work out go back to the studio but it will take time. 
 -  
