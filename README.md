@@ -1,14 +1,13 @@
 -  Hi, I’m Allan Nyariki or @LastKingofFrance
--  I’m interested in History, Football, Chess, and then Data here. Probably math first before data.
+-  I’m interested in History, Football, Chess, and then data here. Probably math first before data, which is probably the same thing.
 -  Think about it the only reason we have data and data science is because some people, thousands of years ago, in modern-day Iraq wanted to record the produce they had farmed.
--  How is that at all interesting?
+-  How is that at all interesting? I have no idea as well. 
 -  I’m currently learning to be a better person. But I should probably say something like Python or R or how to become a holistic actuary. 
 - I’m looking to collaborate on something that will impact people. 
 - How to reach me: probably via email at allannyariki@gmail.com
-
 -  Fun fact: In 2012 Kendrick made one of the top 10 albums in rap history good kid, m.A.A.d city of which he lost the Grammys to Macklemore's Random Access Memories an inferior album.
 - Three years later he would make To Pimp a Butterfly arguably one of the top 5 best albums not only in rap but music history and then won a deserved Grammy one year later.
-- This is a long fun fact but the moral of the story is if  things don't work out go back to the studio. 
+- This is a long fun fact but the moral of the story is if  things don't work out go back to the studio and work on it again. 
 -  
 
 <!---
